@@ -91,7 +91,7 @@ www.linkedin.com/in/priyanshu-kumar-33854724a
 https://github.com/priyanshu7289
 
 📧 Email:
-your-email@example.com
+priyanshu7289@gmail.com
 
 ---
 
